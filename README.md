@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Nemermel, Software Engineer and CTO in Marketing Product company.
+- 👀 I’m interested in Software Engineering, Modern Technologies and D&D 🎲
+- 🌱 I’m currently self improving in Software Design and Architecture.
+- 💞️ I’m looking to collaborate on some startup ideas.
+- 📫 How to reach me you can reach me in my Telegram [@Barflaginduck](https://t.me/Barflaginduck)
+- 💼 Also i'm a consulting specialist in Software Design and Architechture, so i would be glad to assist you with your project.
