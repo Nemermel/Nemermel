@@ -2,5 +2,5 @@
 - 👀 I’m interested in Software Engineering, Modern Technologies and D&D 🎲
 - 🌱 I’m currently self improving in Software Design and Architecture.
 - 💞️ I’m looking to collaborate on some startup ideas.
-- 📫 How to reach me you can reach me in my Telegram [@Barflaginduck](https://t.me/Barflaginduck)
+- 📫 You can reach me in my Telegram [@Barflaginduck](https://t.me/Barflaginduck) if you have anything on your mind, and you want to share it.
 - 💼 Also i'm a consulting specialist in Software Design and Architechture, so i would be glad to assist you with your project.
